@@ -1,5 +1,8 @@
 # 歡迎黎到澳洲 IT 人 
 (Updated 27/11/2023)
+
+[加入 Telegram Group](https://t.me/+m-Ht0fSWQDxmNjdl)
+
 - [1 - 呢個 Group 係做咩？](#1---呢個-group-係做咩)
 - [2 - 澳洲 IT 前景/工作文化點？](#2---澳洲-it-前景工作文化點)
 - [3 - 稅務](#3---稅務)
